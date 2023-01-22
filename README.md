@@ -1,4 +1,4 @@
-*** Türkçe: ***
+*** Türkçe ***
 
 Merhabalar 👋
 
